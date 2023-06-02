@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @INSANE-CM
-- 👀 I’m interested in IT-programming
+- 👀 I’m interested in beck-end programing
 - 🌱 I’m currently learning python
 - 📫 How to reach me DM me on discord : 𝓘𝓝𝓢𝓐𝓝𝓔#6818
 
